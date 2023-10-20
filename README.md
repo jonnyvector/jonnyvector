@@ -9,5 +9,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with Node : )
 - 💬 Ask me about how to make your e-commerce dreams come true!
 - 📫 How to reach me: jonny@jonnyhicks.com  
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: I speak Thai fluently.
